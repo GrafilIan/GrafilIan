@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Ian Carl G. Grafil
+- 👋 Hi.
